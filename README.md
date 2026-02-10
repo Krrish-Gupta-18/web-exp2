@@ -1,1 +1,1 @@
-https://yash1640.github.io/WEBL_LAB_EXP2/
+https://Krrish-Gupta-18.github.io/web-exp2/
